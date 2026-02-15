@@ -15,4 +15,4 @@
 (Coming soon)
 
 ### 📫 Contact
-Email: your@email.com
+Email: raad10549@gmail.com
